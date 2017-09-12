@@ -55,4 +55,4 @@ lint: ## Check that all generated HTML files are well-formed.
 		--check-opengraph \
 		--file-ignore '/_site\/posts\/.*/' \
 		--log-level debug \
-		--internal-domains post-self.io
+		--internal-domains post-self.io,0.0.0.0:4000

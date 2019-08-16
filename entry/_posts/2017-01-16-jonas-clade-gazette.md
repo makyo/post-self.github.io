@@ -91,7 +91,7 @@ Anyway, it spun out into a little argument, which turned into a big argument. De
 
 He moved out with Llewellyn. Switched sims and wound up digging his own place in a rural area. Says he needs some time to himself, and wants to focus on his relationship, says he and Llew are getting married and going exclusive.
 
-So my plan not to hurt anyone basically didn't work at all, and now I feel like shit for alienating both of them, and feel doubly weird that 3 went mono. Makes me worried for the rest of our subclade. Is that something we'll all discover sooner or later? That all these relationships are more trouble that their worth? Is poly just compensation for not finding someone we really want to be with?
+So my plan not to hurt anyone basically didn't work at all, and now I feel like shit for alienating both of them, and feel doubly weird that 3 went mono. Makes me worried for the rest of our subclade. Is that something we'll all discover sooner or later? That all these relationships are more trouble that they're worth? Is poly just compensation for not finding someone we really want to be with?
 
 Fuck fuck fuck.
 
